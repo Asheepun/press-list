@@ -1,3 +1,3 @@
-#New outlets / Reviewers / Bloggers
+# New outlets / Reviewers / Bloggers
 
-#Youtubers
+# Youtubers
