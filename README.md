@@ -1,4 +1,4 @@
-# New outlets / Reviewers / Bloggers
+# News outlets / Reviewers / Bloggers
 
 Goomba Stomp
 GamesEditor@goombastomp.com
