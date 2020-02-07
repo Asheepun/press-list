@@ -1,3 +1,7 @@
+# Checks
+Written in bold.
+*B* boyandbox
+
 # News outlets / Reviewers / Bloggers
 
 Goomba Stomp
