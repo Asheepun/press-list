@@ -1,6 +1,7 @@
 # Checks
 Written in bold.
-*B* boyandbox
+
+**B** boyandbox
 
 # News outlets / Reviewers / Bloggers
 
