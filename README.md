@@ -21,3 +21,7 @@ https://www.youtube.com/user/peppage/featured
 Indie-Credible
 lewis@indie-credible.com
 https://www.youtube.com/channel/UCoOhVxB50kINg1i8zi-NW6Q/videos
+
+Indie Game Fiend
+matt@indiegamefiend.net
+https://www.youtube.com/channel/UCNsvPM-omLMCGsAlKmElqcA/featured
