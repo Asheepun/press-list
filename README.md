@@ -67,6 +67,10 @@ Grabit Magazine
 developers@grabitmagazine.com
 https://www.grabitmagazine.com/blog/
 
+Bago Games
+info@bagogames.com
+https://bagogames.com/reviews/indie-games/
+
 # Youtubers
 
 PixelProspector
