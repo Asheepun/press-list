@@ -71,6 +71,29 @@ Bago Games
 info@bagogames.com
 https://bagogames.com/reviews/indie-games/
 
+Rock Paper Shotgun
+contact@rockpapershotgun.com
+
+Independet.ie
+contact@independent.ie 
+https://www.independent.ie/service/contact-us-26897641.html#newsroom
+
+GamesRadar+
+daniel.dawkins@futurenet.com
+https://www.gamesradar.com/uk/about-gamesradar/
+
+This Gen Gaming
+PR@thisgengaming.co.uk 
+https://thisgengaming.com/contact/
+
+Indie Game Buzz
+games @ indiegamebuzz.com
+https://indiegamebuzz.com/contact/
+
+The Guardian
+culture@theguardian.com
+https://www.theguardian.com/help/contact-us#nav2
+
 # Youtubers
 
 PixelProspector
