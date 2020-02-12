@@ -67,41 +67,51 @@ WIRED
 mail@wired.com
 https://www.wired.com/about/feedback/
 
+**B**
 Digital Trends
 news@digitaltrends.com
 https://www.digitaltrends.com/company-contacts/
 
+**B**
 Indie-Credible
 Send through their portal.
 https://indie-credible.com/weeks-top-indie-game-news-10/
 
+**B**
 Grabit Magazine
 developers@grabitmagazine.com
 https://www.grabitmagazine.com/blog/
 
+**B**
 Bago Games
 info@bagogames.com
 https://bagogames.com/reviews/indie-games/
 
+**B**
 Rock Paper Shotgun
 contact@rockpapershotgun.com
 
+**B**
 Independet.ie
 contact@independent.ie 
 https://www.independent.ie/service/contact-us-26897641.html#newsroom
 
+**B**
 GamesRadar+
 daniel.dawkins@futurenet.com
 https://www.gamesradar.com/uk/about-gamesradar/
 
+**B**
 This Gen Gaming
 PR@thisgengaming.co.uk 
 https://thisgengaming.com/contact/
 
+**B**
 Indie Game Buzz
-games @ indiegamebuzz.com
+games@indiegamebuzz.com
 https://indiegamebuzz.com/contact/
 
+**B**
 The Guardian
 culture@theguardian.com
 https://www.theguardian.com/help/contact-us#nav2
@@ -138,26 +148,32 @@ Best Indie Games
 clemmygames@gmail.com
 https://www.youtube.com/channel/UCCd3jyJmOFzkJEMj5Bp89rw
 
+**B**
 Indie-Credible
 lewis@indie-credible.com
 https://www.youtube.com/channel/UCoOhVxB50kINg1i8zi-NW6Q
 
+**B**
 Defunct Games
 loser@defunctgames.com
 https://www.youtube.com/user/DefunctGamer
 
+**B**
 Indie Games Searchlight
 addatworkproductions@yahoo.com
 https://www.youtube.com/user/ADDatWorkProductions
 
+**B**
 IndieVoice
 indievoice101@gmail.com
 https://www.youtube.com/channel/UCHUrxSVECEiIb0BjYdVk3rw
 
+**B**
 Them Peeps - Short & Sweet Game Reviews
 michael@thempeeps.com
 https://www.youtube.com/channel/UC9v9SXi9vBOgHmqMtkdXGDg
 
+**B**
 TheBeardedTom
 TheBeardedTomYT@gmail.com
 https://www.youtube.com/user/WeiseGamer
