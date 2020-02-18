@@ -177,3 +177,31 @@ https://www.youtube.com/channel/UC9v9SXi9vBOgHmqMtkdXGDg
 TheBeardedTom
 TheBeardedTomYT@gmail.com
 https://www.youtube.com/user/WeiseGamer
+
+Snoman Gaming
+snomangaming@yahoo.com
+https://www.youtube.com/user/snomangaming/about
+
+GMTK
+mcbacon@gmail.com
+https://www.youtube.com/user/McBacon1337/about
+
+Sunny Indie Gaming
+Sunnyindiegaming@gmail.com
+https://www.youtube.com/user/amaeloeze/videos
+
+Game Wisdom
+josh@game-wisdom.com
+https://www.youtube.com/channel/UCJPQyAGAbIcXZXfM01oOPOA/videos
+
+Table 53
+TableFiftyThree@gmail.com
+https://www.youtube.com/channel/UCimJO6nZt-Yanp2j8Kd9g0Q/videos
+
+Pixel Rookie
+pixelrookie@gmail.com
+https://www.youtube.com/channel/UCJJpgSQwX50RhwamJOgvuOw/videos
+
+Game Soup
+GameSoupLP@gmail.com
+https://www.youtube.com/channel/UCGPMrF9AN_D9BrmSmMeV3hA
