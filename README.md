@@ -178,30 +178,47 @@ TheBeardedTom
 TheBeardedTomYT@gmail.com
 https://www.youtube.com/user/WeiseGamer
 
+**B**
 Snoman Gaming
 snomangaming@yahoo.com
 https://www.youtube.com/user/snomangaming/about
 
+**B**
 GMTK
 mcbacon@gmail.com
 https://www.youtube.com/user/McBacon1337/about
 
+**B**
 Sunny Indie Gaming
 Sunnyindiegaming@gmail.com
 https://www.youtube.com/user/amaeloeze/videos
 
+**B**
 Game Wisdom
 josh@game-wisdom.com
 https://www.youtube.com/channel/UCJPQyAGAbIcXZXfM01oOPOA/videos
 
+**B**
 Table 53
 TableFiftyThree@gmail.com
 https://www.youtube.com/channel/UCimJO6nZt-Yanp2j8Kd9g0Q/videos
 
+**B**
 Pixel Rookie
 pixelrookie@gmail.com
 https://www.youtube.com/channel/UCJJpgSQwX50RhwamJOgvuOw/videos
 
+**B**
 Game Soup
 GameSoupLP@gmail.com
 https://www.youtube.com/channel/UCGPMrF9AN_D9BrmSmMeV3hA
+
+**B**
+Indie Game Lover
+form
+https://www.youtube.com/channel/UCLKDIwE7xiLh51pIe09vEbg/videos
+
+**B**
+Lets Play Indie Games Channel
+donjuan6666@hotmail.com
+https://www.youtube.com/user/JuanEnrique24/about
